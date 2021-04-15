@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @dreamofstudy
 - 👀 I’m interested in study
 - 🌱 I’m currently learning ..
-- 💞️ I’m looking to collaborate on ...
+- 💞️ Although my major is civil engineering, but I am more interested in programming, I will continue to improve myself, I want to become stronger
 - 📫 How to reach me ...
 hhhhhhh~~~
 ##QQ:1534074236
